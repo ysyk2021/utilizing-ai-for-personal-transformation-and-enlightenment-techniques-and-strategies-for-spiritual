@@ -1,5 +1,4 @@
 
-
 Emotional intelligence (EI) is a critical component of personal growth and development. AI technology can provide valuable applications and techniques for enhancing self-awareness and self-regulation through emotional analytics and feedback. This chapter focuses on the use of AI-enabled systems to enhance emotional intelligence.
 
 Emotional Analytics

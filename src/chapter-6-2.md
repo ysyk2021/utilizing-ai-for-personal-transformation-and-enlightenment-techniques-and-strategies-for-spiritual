@@ -1,5 +1,4 @@
 
-
 In this chapter, we will explore how to overcome blocks and resistance to change with the support of AI-enabled cognitive restructuring and behavioral therapy.
 
 Understanding Blocks and Resistance to Change
