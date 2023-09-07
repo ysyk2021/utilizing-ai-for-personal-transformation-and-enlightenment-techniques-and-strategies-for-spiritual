@@ -8,3 +8,7 @@ We also examine the role of AI in enhancing mindfulness and meditation practices
 Through this book, we hope to provide readers with a deeper understanding of the potential of AI technology to support personal transformation and enlightenment. Whether you are new to the world of AI or an experienced practitioner, we believe that this book has something to offer for anyone interested in using technology to enhance their personal growth journey.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
