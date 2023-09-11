@@ -1,5 +1,4 @@
-Chapter 7: Creating Meaningful Life Goals and Plans with AI-Enabled Goal Setting and Action Planning
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how AI can serve as a valuable ally in the process of setting meaningful life goals and creating actionable plans to achieve them. The integration of AI empowers individuals to clarify their aspirations, track progress, and navigate the path toward personal transformation and enlightenment with purpose and effectiveness.
 

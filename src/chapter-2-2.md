@@ -1,5 +1,4 @@
-Chapter 3: Different Types of AI Techniques and Platforms for Self-Analysis and Improvement
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various AI techniques and platforms that empower individuals in their pursuit of self-analysis and self-improvement on the path to personal transformation and enlightenment. These AI-driven tools offer unique capabilities for gaining insights into our inner selves and fostering spiritual and emotional growth.
 

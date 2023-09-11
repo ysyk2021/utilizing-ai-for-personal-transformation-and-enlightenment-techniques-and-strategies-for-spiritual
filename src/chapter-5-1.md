@@ -1,5 +1,4 @@
-Chapter 8: Discovering Personal Passions and Values with AI-Enabled Self-Assessment and Life Mapping
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how AI can assist individuals in discovering their personal passions and values, offering insights and guidance through self-assessment and life mapping. The integration of AI empowers individuals to embark on a journey of self-discovery, aligning their aspirations with their core values to facilitate spiritual and emotional growth.
 

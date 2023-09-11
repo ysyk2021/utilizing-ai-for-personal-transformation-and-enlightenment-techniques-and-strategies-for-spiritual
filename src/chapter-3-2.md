@@ -1,5 +1,4 @@
-Chapter 10: Improving Social Skills and Interpersonal Communication with AI-Enabled Personality Assessment and Training
-=======================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the role of AI in enhancing social skills and improving interpersonal communication. Through AI-enabled personality assessment and training, individuals can unlock their full potential for personal transformation and enlightenment by fostering meaningful connections and effective communication with others.
 
